@@ -1,0 +1,1 @@
+What can be the possible theories, methods, methodologies, tools, and strategies to ethically and critically build an online digital archive (of street photography) from and with minoritized and/or subaalternized spaces?
